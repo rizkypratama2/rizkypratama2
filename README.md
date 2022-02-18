@@ -12,8 +12,8 @@
 
 ## GROUP SUPPORT:
 
-<a href="@tongkrongankekinian" target="blank"><img src="https://img.shields.io/badge/MARGA-PRATAMA-green?style=flat&logo=telegram" /></a>
-<a href="https://t.me/geezsupportgroup" target="blank"><img src="https://img.shields.io/badge/GEEZ-SUPPORT GROUP-black?style=flat&logo=telegram" /></a>
+<a href="https://t.me/tongkrongankekinian" target="blank"><img src="https://img.shields.io/badge/MARGA-PRATAMA-green?style=flat&logo=telegram" /></a>
+<a href="https://t.me/geezsupport" target="blank"><img src="https://img.shields.io/badge/GEEZ-SUPPORT-black?style=flat&logo=telegram" /></a>
 
 # My instagram:
 
