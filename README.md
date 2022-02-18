@@ -1,6 +1,6 @@
-# Hallo👋 , Nama Saya Rizky || PRATAMA 🤙🏻!
+# Hallo Ngentod👋 , Nama Saya Rizky || PRATAMA 🤙🏻!
 
-# Umur saya 20 tahun, Asal Ambon.
+# Umur saya 20 tahun,Belom tua Yah Blok, Asal Ambon.
 
 # My Telegram:
 
